@@ -1,12 +1,12 @@
 Nightline (199) Found Voices: Slave Narratives
 ==============================================
 
-* Full broadcast on DailyMotion
-  https://www.dailymotion.com/video/x2yeit6
-* Worldcat "Found voices : the slave narratives"
-  https://www.worldcat.org/title/found-voices-the-slave-narratives/oclc/42936720
-* Full broadcast available on the Internet Archive
+* Full broadcast on the Internet Archive    
   https://archive.org/details/nightline-1999-freed-voices
+* Full broadcast on DailyMotion    
+  https://www.dailymotion.com/video/x2yeit6
+* Worldcat "Found voices: the slave narratives"    
+  https://www.worldcat.org/title/found-voices-the-slave-narratives/oclc/42936720
 
 Originally broadcast on Jan. 12, 1999 as a Nightline program. Program
 tells of sound recordings made of interviews with former slaves in the
