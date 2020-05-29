@@ -2,7 +2,7 @@ George Floyd (2020) Minneapolis
 ===============================
 
 Uploaded to the Internet Archive on 29 May 2020:    
-https://archive.org/floyd-2020-minneapolis-darnellareallprettymarie
+https://archive.org/details/floyd-2020-minneapolis-darnellareallprettymarie
 
 Raw footage from `darnellareallprettymarie` on Facebook(Login Required)    
 https://www.facebook.com/darnellareallprettymarie/videos/1425398217661280/
