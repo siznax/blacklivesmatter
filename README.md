@@ -26,8 +26,7 @@ M. Jackson](https://www.teenvogue.com/story/ahmaud-arbery-killing-reminder-diffe
 
 Resources
 
-* [How To Be Antiracist](https://www.aspenideas.org/sessions/how-to-be-an-antiracist)
 * [Talking About Race](https://nmaahc.si.edu/learn/talking-about-race)
-  Smithsonian National Museum of African American History & Culture
+* [How To Be Antiracist](https://www.aspenideas.org/sessions/how-to-be-an-antiracist)
 
 Please contribute by sharing and discussing, or by submitting material.
