@@ -527,8 +527,16 @@ SELECTED BIBLIOGRAPHY page 431
 INDEX _page 433_
 
 50. The 50th Law
-================
+----------------
 
-See [The 50th Law](https://en.wikipedia.org/wiki/The_50th_Law)
+See https://en.wikipedia.org/wiki/The_50th_Law
+
+See also
+--------
+
+* Social Identities and Systems of Opression
+  https://nmaahc.si.edu/learn/talking-about-race/topics/social-identities-and-systems-oppression
+* How To Understand Power
+  https://www.youtube.com/watch?v=c_Eutci7ack
 
 ~
