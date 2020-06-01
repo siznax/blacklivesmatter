@@ -61,7 +61,7 @@ mysterious than the bland and timid masses.
 **7. GET OTHERS TO DO THE WORK FOR YOU, BUT ALWAYS TAKE THE CREDIT**
 
 Use the wisdom, knowledge, and legwork of other people to further your
-own cause. Not only will such assis¬ tance save you valuable time and
+own cause. Not only will such assistance save you valuable time and
 energy, it will give you a godlike aura of efficiency and speed. In
 the end your helpers will be forgotten and you will be
 remembered. Never do yourself what others can do for you.
@@ -76,7 +76,7 @@ hold the cards.
 **9. WIN THROUGH YOUR ACTIONS, NEVER THROUGH ARGUMENT**
 
 Any momentary triumph you think you have gained through argument is
-really a Pyrrhic victory: The resent¬ ment and ill will you stir up is
+really a Pyrrhic victory: The resentment and ill will you stir up is
 stronger and lasts longer than any momentary change of opinion. It is
 much more powerful to get others to agree with you through your
 actions, without saying a word. Demonstrate, do not explicate.
@@ -111,7 +111,7 @@ If you need to turn to an ally for help, do not bother to remind him
 of your past assistance and good deeds. He will find a way to ignore
 you. Instead, uncover something in your request, or in your alliance
 with him, that will benefit him, and emphasize it out of all
-proportion. He will respond enthusiastically when he sees some¬ thing
+proportion. He will respond enthusiastically when he sees something
 to be gained for himself.
 
 **14. POSE AS A FRIEND, WORK AS A SPY**
@@ -128,7 +128,7 @@ spying.
 All great leaders since Moses have known that a feared enemy must be
 crushed completely. (Sometimes they have learned this the hard way.)
 If one ember is left alight, no matter how dimly it smolders, a fire
-will eventu¬ ally break out. More is lost through stopping halfway
+will eventually break out. More is lost through stopping halfway
 than through total annihilation: The enemy will recover, and will seek
 revenge. Crush him, not only in body but in spirit.
 
@@ -143,7 +143,7 @@ leave. Create value through scarcity.
 **17. KEEP OTHERS IN SUSPENDED TERROR: CULTIVATE AN AIR OF UNPREDICTABILITY**
 
 Humans are creatures of habit with an insatiable need to see
-familiarity in other people’s actions. Your pre¬ dictability gives
+familiarity in other people’s actions. Your predictability gives
 them a sense of control. Turn the tables: Be deliberately
 unpredictable. Behavior that seems to have no consistency or purpose
 will keep them off-balance, and they will wear themselves out trying
@@ -155,7 +155,7 @@ intimidate and terrorize.
 The world is dangerous and enemies are everywhere—everyone has to
 protect themselves. A fortress seems the safest. But isolation exposes
 you to more dangers than it protects you from—it cuts you off from
-valuable in¬ formation, it makes you conspicuous and an easy
+valuable information, it makes you conspicuous and an easy
 target. Better to circulate among people, find allies, mingle. You
 are shielded from your enemies by the crowd.
 
@@ -180,23 +180,23 @@ them pursue you.
 No one likes feeling stupider than the next person. The trick, then,
 is to make your victims feel smart—and not just smart, but smarter
 than you are. Once convinced of this, they will never suspect that you
-may have ulte¬ rior motives.
+may have ulterior motives.
 
 **22. USE THE SURRENDER TACTIC: TRANSFORM WEAKNESS INTO POWER**
 
 When you are weaker, never fight for honor’s sake; choose surrender
-instead. Surrender gives you time to re¬ cover, time to torment and
+instead. Surrender gives you time to recover, time to torment and
 irritate your conqueror, time to wait for his power to wane. Do not
-give him the sat¬ isfaction offighting and defeating you—surrender
+give him the satisfaction offighting and defeating you—surrender
 first. By turning the other cheek you infuriate and unsettle him. Make
 surrender a tool of power.
 
 **23. CONCENTRATE YOUR FORCES**
 
 Conserve your forces and energies by keeping them concentrated at
-their strongest point. You gain more by find¬ ing a rich mine and
+their strongest point. You gain more by finding a rich mine and
 mining it deeper, than by flitting from one shallow mine to
-another—intensity defeats ex¬ tensity every time. When looking for
+another—intensity defeats extensity every time. When looking for
 sources of power to elevate you, find the one key patron, the fat cow
 who will give you milk for a long time to come.
 
@@ -212,9 +212,9 @@ rise in the court.
 **25. RE-CREATE YOURSELF**
 
 Do not accept the roles that society foists on you. Re-create yourself
-by forging a new identity, one that com¬ mands attention and never
+by forging a new identity, one that commands attention and never
 bores the audience. Be the master of your own image rather than
-letting others de¬ fine it for you. Incorporate dramatic devices into
+letting others define it for you. Incorporate dramatic devices into
 your public gestures and actions—your power will be enhanced and your
 character will seem larger than life.
 
@@ -223,7 +223,7 @@ character will seem larger than life.
 You must seem a paragon of civility and efficiency: Your hands are
 never soiled by mistakes and nasty deeds.  Maintain such a spotless
 appearance by using others as scapegoats and cat’s-paws to disguise
-your in¬ volvement.
+your involvement.
 
 **27. PLAY ON PEOPLE'S NEED TO BELIEVE TO CREATE A CULTLIKE FOLLOWING**
 
@@ -238,9 +238,9 @@ new belief system will bring you untold power.
 **28. ENTER ACTION WITH BOLDNESS**
 
 If you are unsure of a course of action, do not attempt it. Your
-doubts and hesitations will infect your execu¬ tion. Timidity is
+doubts and hesitations will infect your execution. Timidity is
 dangerous: Better to enter with boldness. Any mistakes you commit
-through audacity are eas¬ ily corrected with more audacity. Everyone
+through audacity are easily corrected with more audacity. Everyone
 admires the bold; no one honors the timid.
 
 **29. PLAN ALL THE WAY TO THE END**
@@ -289,7 +289,7 @@ you can turn to your advantage.
 **34. BE ROYAL IN YOUR OWN FASHION: ACT LIKE A KING TO BE TREATED LIKE ONE**
 
 The way you carry yourself will often determine how you are treated:
-In the long run, appearing vulgar or com¬ mon will make people
+In the long run, appearing vulgar or common will make people
 disrespect you. For a king respects himself and inspires the same
 sentiment in others. By acting regally and confident of your powers,
 you make yourself seem destined to wear a crown.
@@ -297,7 +297,7 @@ you make yourself seem destined to wear a crown.
 **35. MASTER THE ART OF TIMING**
 
 Never seem to be in a hurry—hurrying betrays a lack of control over
-yourself, and over time. Always seem pa¬ tient, as if you know that
+yourself, and over time. Always seem patient, as if you know that
 everything will come to you eventually. Become a detective of the
 right moment; sniff out the spirit of the times, the trends that will
 carry you to power. Learn to stand back when the time is not yet ripe,
@@ -315,7 +315,7 @@ The less interest you reveal, the more superior you seem.
 **37. CREATE COMPELLING SPECTACLES**
 
 Striking imagery and grand symbolic gestures create the aura of
-power—everyone responds to them. Stage spec¬ tacles for those around
+power—everyone responds to them. Stage spectacles for those around
 you, then, full of arresting visuals and radiant symbols that heighten
 your presence.  Dazzled by appearances, no one will notice what you
 are really doing.
@@ -344,7 +344,7 @@ What is offered for free is dangerous—it usually involves either a
 trick or a hidden obligation. What has worth is worth paying for. By
 paying your own way you stay clear of gratitude, guilt, and deceit. It
 is also often wise to pay the full price—there is no cutting comers
-with excellence. Be lavish with your money and keep it circu¬ lating,
+with excellence. Be lavish with your money and keep it circulating,
 for generosity is a sign and a magnet for power.
 
 **41. AVOID STEPPING INTO A GREAT MAN'S SHOES**
@@ -363,7 +363,7 @@ Trouble can often be traced to a single strong individual—the stirrer,
 the arrogant underling, the poisoner of goodwill. If you allow such
 people room to operate, others will succumb to their influence. Do not
 wait for the troubles they cause to multiply, do not try to negotiate
-with them—they are irredeemable. Neutralize their in¬ fluence by
+with them—they are irredeemable. Neutralize their influence by
 isolating or banishing them. Strike at the source of the trouble and
 the sheep will scatter.
 
@@ -380,7 +380,7 @@ and they will grow to hate you.
 **44. DISARM AND INFURIATE WITH THE MIRROR EFFECT**
 
 The mirror reflects reality, but it is also the perfect tool for
-deception: When you mirror your enemies, doing ex¬ actly as they do,
+deception: When you mirror your enemies, doing exactly as they do,
 they cannot figure out your strategy. The Mirror Effect mocks and
 humiliates them, making them overreact. By holding up a mirror to
 their psyches, you seduce them with the illusion that you share their
@@ -393,7 +393,7 @@ Everyone understands the need for change in the abstract, but on the
 day-to-day level people are creatures of habit. Too much innovation is
 traumatic, and will lead to revolt. If you are new to a position of
 power, or an outsider trying to build a power base, make a show of
-respecting the old way of doing things. If change is nec¬ essary, make
+respecting the old way of doing things. If change is necessary, make
 it feel like a gentle improvement on the past.
 
 **46. NEVER APPEAR TOO PERFECT**
@@ -407,7 +407,7 @@ approachable. Only gods and the dead can seem perfect with impunity.
 **47. DO NOT GO PAST THE MARK YOU AIMED FOR; IN VICTORY, LEARN WHEN TO STOP**
 
 The moment of victory is often the moment of greatest peril. In the
-heat of victory, arrogance and overconfi¬ dence can push you past the
+heat of victory, arrogance and overconfidence can push you past the
 goal you had aimed for, and by going too far, you make more enemies
 than you defeat. Do not allow success to go to your head. There is no
 substitute for strategy and careful planning. Set a goal, and when you
