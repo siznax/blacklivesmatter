@@ -83,11 +83,11 @@ actions, without saying a word. Demonstrate, do not explicate.
 
 **10. INFECTION: AVOID THE UNHAPPY AND UNLUCKY**
 
-You can die from someone else ’s misery—emotional states are as
+You can die from someone else's misery—emotional states are as
 infectious as diseases. You may feel you are helping the drowning man
 but you are only precipitating your own disaster. The unfortunate
 sometimes draw misfortune on themselves; they will also draw it on
-you. Associate with the happy andfortunate instead.
+you. Associate with the happy and fortunate instead.
 
 **11. LEARN TO KEEP PEOPLE DEPENDENT ON YOU**
 
@@ -231,7 +231,7 @@ People have an overwhelming desire to believe in something. Become the
 focal point of such desire by offering them a cause, a new faith to
 follow. Keep your words vague but full of promise; emphasize
 enthusiasm over rationality and clear thinking. Give your new
-disciples rituals to peiform, ask them to make sacrifices on your
+disciples rituals to perform, ask them to make sacrifices on your
 behalf. In the absence of organized religion and grand causes, your
 new belief system will bring you untold power.
 
