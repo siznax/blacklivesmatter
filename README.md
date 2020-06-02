@@ -13,7 +13,9 @@ refer to those populations brought together in colonial America: the
 English and other European settlers, the conquered Indian peoples,
 and those peoples of Africa brought in to provide slave labor._
 
-—[American Anthropological Association](https://www.americananthro.org/ConnectWithAAA/Content.aspx?ItemNumber=2583)
+—[American Anthropological
+Association](https://www.americananthro.org/ConnectWithAAA/Content.aspx?ItemNumber=2583)
+17 May 1998
 
 _It was freedom fighter Angela Y. Davis who said, “In a racist society
 it is not enough to be non-racist, we must be anti-racist.” And, there
