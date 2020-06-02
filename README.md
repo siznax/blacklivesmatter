@@ -3,6 +3,18 @@ Black Lives Matter
 
 Self-education information for privileged white Americans like myself.
 
+_Historical research has shown that the idea of "race" has always
+carried more meanings than mere physical differences; indeed,
+physical variations in the human species have no meaning except the
+social ones that humans put on them. Today scholars in many fields
+argue that "race" as it is understood in the United States of
+America was a social mechanism invented during the 18th century to
+refer to those populations brought together in colonial America: the
+English and other European settlers, the conquered Indian peoples,
+and those peoples of Africa brought in to provide slave labor._
+
+—[American Anthropological Association](https://www.americananthro.org/ConnectWithAAA/Content.aspx?ItemNumber=2583)
+
 _It was freedom fighter Angela Y. Davis who said, “In a racist society
 it is not enough to be non-racist, we must be anti-racist.” And, there
 are important differences between non-racism and anti-racism. To be
