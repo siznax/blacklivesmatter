@@ -1,7 +1,7 @@
 Black Lives Matter
 ==================
 
-Self-education information for privileged white Americans like myself.
+_Antiracist self-education information and resources_
 
 _Historical research has shown that the idea of "race" has always
 carried more meanings than mere physical differences; indeed,
