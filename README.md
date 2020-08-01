@@ -61,7 +61,10 @@ Begin here:
 
 * [Talking About Race](https://nmaahc.si.edu/learn/talking-about-race)
 * [How To Be Antiracist](https://www.aspenideas.org/sessions/how-to-be-an-antiracist)
+* [Together, You Can Redeem the Soul of Our Nation](lewis-2020-redeem.md)
 
 Please contribute by studying, sharing, and discussing, or by
 submitting material.
 
+
+@siznax
