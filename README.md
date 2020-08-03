@@ -79,6 +79,8 @@ our willingness to profit from the exploitation of others._
 
 ### Reverse chronology
 
+July 2020
+
 * 26 July 2020: [**John Lewis** carried by a horse-drawn caisson over Edmund Pettus bridge](https://en.wikipedia.org/wiki/John_Lewis_(civil_rights_]leader))
 * 22 July 2020: [Portland **mayor tear-gassed** speaking to proteters](https://en.wikipedia.org/wiki/George_Floyd_protests_in_Portland,_Oregon)
 * 19 July 2020: [Trump says Portland **federal seige** will end when local authorities cooperate](https://en.wikipedia.org/wiki/George_Floyd_protests_in_Portland,_Oregon#Federal)
@@ -86,6 +88,9 @@ our willingness to profit from the exploitation of others._
 * 13 July 2020: [Washington **Redskins** announce retirement of name and logo](https://www.washingtonfootball.com/news/washington-redskins-retiring-name-logo-following-review)
 * 3 July 2020: [15-26 million Americans have protested, making it the U.S.'s **largest protest**](https://en.wikipedia.org/wiki/George_Floyd_protests)
 * 1 July 2020: [Trump deploys **federal forces** to several U.S. cities](https://en.wikipedia.org/wiki/2020_deployment_of_federal_forces_in_the_United_States)
+
+June 2020
+
 * 30 June 2020: By this date, [30 people had **died in protests** and over 14,000 **arrested**](https://en.wikipedia.org/wiki/Violence_and_controversies_during_the_George_Floyd_protests)
 * 26 June 2020: [Trumps orders **federal troops** to protect federal monuments in the states](https://www.govinfo.gov/content/pkg/FR-2020-07-02/pdf/2020-14509.pdf)
 * 19 June 2020: [Statues of **Junípero Serra** toppled by protestors](https://en.wikipedia.org/wiki/List_of_monuments_and_memorials_removed_during_the_George_Floyd_protests#Genocide_of_indigenous_peoples)
@@ -101,11 +106,20 @@ our willingness to profit from the exploitation of others._
 * 1 June 2020: [Some states begin removing **Confederate Flags**](https://en.wikipedia.org/wiki/List_of_changes_made_due_to_the_George_Floyd_protests#Removal_of_physical_flags)
 * 1 June 2020: [Limited state and federal **police reforms** proposed](https://en.wikipedia.org/wiki/List_of_police_reforms_related_to_the_George_Floyd_protests)
 * 1 June 2020: [Trump orders **attack on protesters** for church photo-op](https://en.wikipedia.org/wiki/Donald_Trump_photo_op_at_St._John%27s_Church)
+
+May 2020
+
 * 29 May 2020: [Trump tweets **"when the looting starts, the shooting starts. Thank you!"**](https://web.archive.org/web/20200529062744/https://twitter.com/realDonaldTrump/status/1266231100780744704)
 * 26 May 2020: [National and international **protests begin**](https://en.wikipedia.org/wiki/Reactions_to_the_George_Floyd_protests)
 * 25 May 2020: [**George Floyd killed by police in Minneapolis** over a $20 bill](https://en.wikipedia.org/wiki/Killing_of_George_Floyd)
+
+Early 2020
+
 * 26 March 2020: [US overtakes China and Italy with **COVID-19** cases](https://en.wikipedia.org/wiki/Coronavirus_disease_2019)
 * 20 February 2020: [**Stock Market** Crash of 2020](https://en.wikipedia.org/wiki/2020_stock_market_crash)
+
+Leading up to 2020
+
 * [Facebook reaches 2.3B active users](https://en.wikipedia.org/wiki/Facebook) (2018)
 * [Smartphones](https://en.wikipedia.org/wiki/Smartphone) (2007-)
 * [September 11 Attacks](https://en.wikipedia.org/wiki/September_11_attacks) (2001)
