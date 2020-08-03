@@ -1,16 +1,20 @@
 Together, You Can Redeem the Soul of Our Nation
 ===============================================
 
-![](https://static01.nyt.com/newsgraphics/2020/07/14/op-header/c998714d96ba195218174d25716062b22597e147/h_14047247.jpg)
+![alt](https://i0.wp.com/beniciaindependent.com/wp-content/uploads/2020/07/JohnRLewis_Though_I_am_gone-nyt20200730.jpg)
 
-Though I am gone, I urge you to answer the highest calling of your
-heart and stand up for what you truly believe.
+_Though I am gone, I urge you to answer the highest calling of your
+heart and stand up for what you truly believe._
 
 By John Lewis
 
 30 July 2020
 
 The New York Times
+
+https://www.nytimes.com/2020/07/30/opinion/john-lewis-civil-rights-america.html
+
+Audio: [Together, You Can Redeem the Soul of Our Nation](lewis-2020-redeem.mp3)
 
 _Mr. Lewis, the civil rights leader who died on July 17, wrote this
 essay shortly before his death, to be published upon the day of his
@@ -95,4 +99,3 @@ everlasting love be your guide.
 John Lewis, the civil rights leader and congressman who died on July
 17, wrote this essay shortly before his death.
 
-https://www.nytimes.com/2020/07/30/opinion/john-lewis-civil-rights-america.html

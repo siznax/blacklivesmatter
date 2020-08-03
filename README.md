@@ -57,11 +57,68 @@ disempowerment and injustice._
 
 —[Roxane Gay](no-one-is-coming-to-save-us.md) 30 May 2020
 
-Begin here:
+
+### Begin here
 
 * [Talking About Race](https://nmaahc.si.edu/learn/talking-about-race)
 * [How To Be Antiracist](https://www.aspenideas.org/sessions/how-to-be-an-antiracist)
 * [Together, You Can Redeem the Soul of Our Nation](lewis-2020-redeem.md)
+
+
+### Reverse chronology
+
+* 26 July 2020: [John Lewis carried by a horse-drawn caisson over Edmund Pettus bridge prior to lying in state in Montgomery](https://en.wikipedia.org/wiki/John_Lewis_(civil_rights_leader))
+* 22 July 2020: [Portland **mayor tear-gassed** speaking to proteters](https://en.wikipedia.org/wiki/George_Floyd_protests_in_Portland,_Oregon)
+* 19 July 2020: [Trump says Portland **federal seige** will end when local authorities cooperate](https://en.wikipedia.org/wiki/George_Floyd_protests_in_Portland,_Oregon#Federal)
+* 19 July 2020: [Seattle protestors rise up against federal involvement](https://en.wikipedia.org/wiki/George_Floyd_protests_in_Seattle)
+* 13 July 2020: [Washington Redskins announce retirement of name and logo](https://www.washingtonfootball.com/news/washington-redskins-retiring-name-logo-following-review)
+* 3 July 2020: [15-26 million Americans have protested, making it the U.S.'s largest](https://en.wikipedia.org/wiki/George_Floyd_protests)
+* 1 July 2020: [Trump deploys federal forces to several U.S. cities](https://en.wikipedia.org/wiki/2020_deployment_of_federal_forces_in_the_United_States)
+* 30 June 2020: By this date, [30 people had died in protests and over 14,000 protesters have been arrested](https://en.wikipedia.org/wiki/Violence_and_controversies_during_the_George_Floyd_protests)
+* 26 June 2020: [Trumps orders federal troops to protect federal monuments in the states](https://www.govinfo.gov/content/pkg/FR-2020-07-02/pdf/2020-14509.pdf)
+* 19 June 2020: [Statues of Junípero Serra toppled by protestors](https://en.wikipedia.org/wiki/List_of_monuments_and_memorials_removed_during_the_George_Floyd_protests#Genocide_of_indigenous_peoples)
+* 10 June 2020: [Many **consumer products** changed to respect Black Lives](https://en.wikipedia.org/wiki/List_of_changes_made_due_to_the_George_Floyd_protests#Products)
+* 9 June 2020: By this date, [30 states had deployed 32,000 National Guard troops]()
+* 9 June 2020: [Statues of Christopher Columbus toppled by protestors](https://en.wikipedia.org/wiki/List_of_monuments_and_memorials_removed_during_the_George_Floyd_protests#Christopher_Columbus)
+* 8 June 2020: [38% rise in the **stock market**](https://en.wikipedia.org/wiki/George_Floyd_protests#Economic_impact)
+* 5 June 2020: [Far-right counter-protesters become visibly active in Las Vegas](https://www.rollingstone.com/culture/culture-news/boogaloo-boys-george-floyd-protests-black-lives-matter-1010117/)
+* 5 June 2020: [U.S. Military begins to ban display of **Confederate Flags**](https://en.wikipedia.org/wiki/List_of_changes_made_due_to_the_George_Floyd_protests#Prohibition_of_Confederate_flag_emblems)
+* 4 June 2020: [1.7 miles of **fencing** added around the White House](https://en.wikipedia.org/wiki/George_Floyd_protests#Activation_of_non-local_forces)
+* 3 June 2020: [200 U.S. cities impose **curfews**](https://en.wikipedia.org/wiki/List_of_George_Floyd_protests_in_the_United_States)
+* 1 June 2020: [Some states begin banning police **chokeholds**](https://en.wikipedia.org/wiki/List_of_police_reforms_related_to_the_George_Floyd_protests)
+* 1 June 2020: [Some states begin removing **Confederate Flags**](https://en.wikipedia.org/wiki/List_of_changes_made_due_to_the_George_Floyd_protests#Removal_of_physical_flags)
+* 1 June 2020: [Limited state and federal **police reforms** proposed](https://en.wikipedia.org/wiki/List_of_police_reforms_related_to_the_George_Floyd_protests)
+* 1 June 2020: [Trump orders **attack on protesters** for church photo-op](https://en.wikipedia.org/wiki/Donald_Trump_photo_op_at_St._John%27s_Church)
+* 29 May 2020: [Trump tweets **"when the looting starts, the shooting starts. Thank you!"**](https://web.archive.org/web/20200529062744/https://twitter.com/realDonaldTrump/status/1266231100780744704)
+* 26 May 2020: [National and International protests begin](https://en.wikipedia.org/wiki/Reactions_to_the_George_Floyd_protests)
+* 25 May 2020: [**George Floyd killed by police in Minneapolis** over a $20 bill](https://en.wikipedia.org/wiki/Killing_of_George_Floyd)
+* 26 March 2020: [United States overtakes China and Italy with highest number of COVID-19 cases](https://en.wikipedia.org/wiki/Coronavirus_disease_2019)
+* 20 February 2020: [Stock Market Crash of 2020](https://en.wikipedia.org/wiki/2020_stock_market_crash)
+* ... [Facebook reaches 2.3B active users](https://en.wikipedia.org/wiki/Facebook) (2018)
+* ... [Smartphones](https://en.wikipedia.org/wiki/Smartphone) (2007-)
+* ... [September 11 Attacks](https://en.wikipedia.org/wiki/September_11_attacks) (2001)
+* ... [World Wide Web](https://en.wikipedia.org/wiki/World_Wide_Web) (1991-)
+* ... [Personal Computer](https://en.wikipedia.org/wiki/Personal_computer) (1974-)
+* ... [Indian Relocation Act](https://en.wikipedia.org/wiki/Indian_Relocation_Act_of_1956) (1956)
+* ... [Vietnam War](https://en.wikipedia.org/wiki/Vietnam_war) (1955-75)
+* ... [Civil Rights Movement](https://en.wikipedia.org/wiki/Civil_rights_movement) (1954-68)
+* ... [Cold War](https://en.wikipedia.org/wiki/Cold_War) (1947-1991)
+* ... [First Transcontinental Flight](https://en.wikipedia.org/wiki/Transcontinental_flight) (1923)
+* ... [World War](https://en.wikipedia.org/wiki/World_war) (1914-45)
+* ... [First Transcontinental Railroad](https://en.wikipedia.org/wiki/First_Transcontinental_Railroad) (1869)
+* ... [American Civil War](https://en.wikipedia.org/wiki/American_Civil_War) (1861-65)
+* ... [First Transcontinental Telegraph](https://en.wikipedia.org/wiki/First_transcontinental_telegraph) (1861)
+* ... [Indian Removal Act](https://en.wikipedia.org/wiki/Indian_Removal_Act) (1830-41)
+* ... [Slavery in the United States](https://en.wikipedia.org/wiki/Slavery_in_the_United_States) (1789-1865)
+* ... [Constitution of the United States](https://en.wikipedia.org/wiki/Constitution_of_the_United_States) (1787-)
+* ... [Declaration of Independence](https://en.wikipedia.org/wiki/United_States_Declaration_of_Independence) (1776)
+* ... [American Revolution](https://en.wikipedia.org/wiki/American_Revolution) (1775-83)
+* ... [First enslaved Africans arrive](https://en.wikipedia.org/wiki/The_1619_Project) (1619)
+* ... [Native American Genocide](https://en.wikipedia.org/wiki/Genocide_of_indigenous_peoples#Native_American_Genocide) (1492-)
+* ... [Pre-Columbian Settlement](https://en.wikipedia.org/wiki/Archaeology_of_the_Americas) (10,000 years ago)
+
+
+### Contribute
 
 Please contribute by studying, sharing, and discussing, or by
 submitting material.
