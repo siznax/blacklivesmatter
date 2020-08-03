@@ -86,7 +86,7 @@ July 2020
 * 19 July 2020: [Trump says Portland **federal seige** will end when local authorities cooperate](https://en.wikipedia.org/wiki/George_Floyd_protests_in_Portland,_Oregon#Federal)
 * 19 July 2020: [**Seattle** protestors rise up against federal involvement](https://en.wikipedia.org/wiki/George_Floyd_protests_in_Seattle)
 * 13 July 2020: [Washington **Redskins** announce retirement of name and logo](https://www.washingtonfootball.com/news/washington-redskins-retiring-name-logo-following-review)
-* 3 July 2020: [15-26 million Americans have protested, making it the U.S.'s **largest protest**](https://en.wikipedia.org/wiki/George_Floyd_protests)
+* 3 July 2020: [15-26M Americans have protested in now the **largest protest** in US history](https://en.wikipedia.org/wiki/George_Floyd_protests)
 * 1 July 2020: [Trump deploys **federal forces** to several U.S. cities](https://en.wikipedia.org/wiki/2020_deployment_of_federal_forces_in_the_United_States)
 
 June 2020
