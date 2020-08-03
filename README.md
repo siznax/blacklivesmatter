@@ -58,6 +58,18 @@ disempowerment and injustice._
 —[Roxane Gay](no-one-is-coming-to-save-us.md) 30 May 2020
 
 
+_You must also study and learn the lessons of history because humanity
+has been involved in this soul-wrenching, existential struggle for a
+very long time. People on every continent have stood in your shoes,
+through decades and centuries before you. The truth does not change,
+and that is why the answers worked out long ago can help you find
+solutions to the challenges of our time. Continue to build union
+between movements stretching across the globe because we must put away
+our willingness to profit from the exploitation of others._
+
+—[John Lewis](lewis-2020-redeem.md) 30 July 2020
+
+
 ### Begin here
 
 * [Talking About Race](https://nmaahc.si.edu/learn/talking-about-race)
@@ -67,7 +79,7 @@ disempowerment and injustice._
 
 ### Reverse chronology
 
-* 26 July 2020: [**John Lewis** carried by a horse-drawn caisson over Edmund Pettus bridge prior to lying in state in Montgomery](https://en.wikipedia.org/wiki/John_Lewis_(civil_rights_leader))
+* 26 July 2020: [**John Lewis** carried by a horse-drawn caisson over Edmund Pettus bridge](https://en.wikipedia.org/wiki/John_Lewis_(civil_rights_]leader))
 * 22 July 2020: [Portland **mayor tear-gassed** speaking to proteters](https://en.wikipedia.org/wiki/George_Floyd_protests_in_Portland,_Oregon)
 * 19 July 2020: [Trump says Portland **federal seige** will end when local authorities cooperate](https://en.wikipedia.org/wiki/George_Floyd_protests_in_Portland,_Oregon#Federal)
 * 19 July 2020: [**Seattle** protestors rise up against federal involvement](https://en.wikipedia.org/wiki/George_Floyd_protests_in_Seattle)
