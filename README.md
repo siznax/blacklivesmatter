@@ -94,7 +94,7 @@ June 2020
 * 30 June 2020: By this date, [30 people had **died in protests** and over 14,000 **arrested**](https://en.wikipedia.org/wiki/Violence_and_controversies_during_the_George_Floyd_protests)
 * 26 June 2020: [Trumps orders **federal troops** to protect federal monuments in the states](https://www.govinfo.gov/content/pkg/FR-2020-07-02/pdf/2020-14509.pdf)
 * 19 June 2020: [Statues of **Junípero Serra** toppled by protestors](https://en.wikipedia.org/wiki/List_of_monuments_and_memorials_removed_during_the_George_Floyd_protests#Genocide_of_indigenous_peoples)
-* 10 June 2020: [Corproations change some **consumer products**](https://en.wikipedia.org/wiki/List_of_changes_made_due_to_the_George_Floyd_protests#Products)
+* 10 June 2020: [Corporations change some **consumer products**](https://en.wikipedia.org/wiki/List_of_changes_made_due_to_the_George_Floyd_protests#Products)
 * 9 June 2020: By this date, [30 states had deployed 32,000 **National Guard troops**]()
 * 9 June 2020: [Statues of Christopher **Columbus** toppled by protestors](https://en.wikipedia.org/wiki/List_of_monuments_and_memorials_removed_during_the_George_Floyd_protests#Christopher_Columbus)
 * 8 June 2020: [38% rise in the **stock market**](https://en.wikipedia.org/wiki/George_Floyd_protests#Economic_impact)
@@ -115,7 +115,7 @@ May 2020
 
 Early 2020
 
-* 26 March 2020: [US overtakes China and Italy with **COVID-19** cases](https://en.wikipedia.org/wiki/Coronavirus_disease_2019)
+* 26 March 2020: [US overtakes China and Italy with most **COVID-19** cases](https://en.wikipedia.org/wiki/Coronavirus_disease_2019)
 * 20 February 2020: [**Stock Market** Crash of 2020](https://en.wikipedia.org/wiki/2020_stock_market_crash)
 
 Leading up to 2020
