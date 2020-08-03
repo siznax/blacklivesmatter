@@ -86,7 +86,7 @@ our willingness to profit from the exploitation of others._
 * 13 July 2020: [Washington **Redskins** announce retirement of name and logo](https://www.washingtonfootball.com/news/washington-redskins-retiring-name-logo-following-review)
 * 3 July 2020: [15-26 million Americans have protested, making it the U.S.'s **largest protest**](https://en.wikipedia.org/wiki/George_Floyd_protests)
 * 1 July 2020: [Trump deploys **federal forces** to several U.S. cities](https://en.wikipedia.org/wiki/2020_deployment_of_federal_forces_in_the_United_States)
-* 30 June 2020: By this date, [30 people had **died in protests** and over 14,000 protesters have been **arrested**](https://en.wikipedia.org/wiki/Violence_and_controversies_during_the_George_Floyd_protests)
+* 30 June 2020: By this date, [30 people had **died in protests** and over 14,000 **arrested**](https://en.wikipedia.org/wiki/Violence_and_controversies_during_the_George_Floyd_protests)
 * 26 June 2020: [Trumps orders **federal troops** to protect federal monuments in the states](https://www.govinfo.gov/content/pkg/FR-2020-07-02/pdf/2020-14509.pdf)
 * 19 June 2020: [Statues of **Junípero Serra** toppled by protestors](https://en.wikipedia.org/wiki/List_of_monuments_and_memorials_removed_during_the_George_Floyd_protests#Genocide_of_indigenous_peoples)
 * 10 June 2020: [Corproations change some **consumer products**](https://en.wikipedia.org/wiki/List_of_changes_made_due_to_the_George_Floyd_protests#Products)
