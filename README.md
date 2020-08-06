@@ -125,6 +125,7 @@ Leading up to 2020
 * [September 11 Attacks](https://en.wikipedia.org/wiki/September_11_attacks) (2001)
 * [World Wide Web](https://en.wikipedia.org/wiki/World_Wide_Web) (1991-)
 * [Personal Computer](https://en.wikipedia.org/wiki/Personal_computer) (1974-)
+* [Jim Crow laws overruled](https://en.wikipedia.org/wiki/Jim_Crow_laws) (1965)
 * [Indian Relocation Act](https://en.wikipedia.org/wiki/Indian_Relocation_Act_of_1956) (1956)
 * [Vietnam War](https://en.wikipedia.org/wiki/Vietnam_war) (1955-75)
 * [Civil Rights Movement](https://en.wikipedia.org/wiki/Civil_rights_movement) (1954-68)
