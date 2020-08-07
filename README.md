@@ -3,6 +3,8 @@ Black Lives Matter
 
 _Antiracist self-education information and resources_
 
+# "Continue to build union between movements stretching across the globe because we must put away our willingness to profit from the exploitation of others. —John Lewis (1940-2020)
+
 _Historical research has shown that the idea of "race" has always
 carried more meanings than mere physical differences; indeed,
 physical variations in the human species have no meaning except the
