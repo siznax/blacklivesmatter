@@ -74,12 +74,17 @@ our willingness to profit from the exploitation of others._
 
 ### Begin here
 
+* ["State of Emergency Speech"](https://www.youtube.com/watch?v=8Jzku_jx5DQ) by Tamika Mallory
 * [Talking About Race](https://nmaahc.si.edu/learn/talking-about-race)
 * [How To Be Antiracist](https://www.aspenideas.org/sessions/how-to-be-an-antiracist)
 * [Together, You Can Redeem the Soul of Our Nation](lewis-2020-redeem.md)
 
 
 ### Reverse chronology
+
+Mar 2021
+
+* 18 March 2021: [Senator Raphael Warnock gives first speech in the Senate](https://www.youtube.com/watch?v=FSEBAa17xsQ)
 
 July 2020
 
@@ -88,6 +93,7 @@ July 2020
 * 19 July 2020: [Trump says Portland **federal seige** will end when local authorities cooperate](https://en.wikipedia.org/wiki/George_Floyd_protests_in_Portland,_Oregon#Federal)
 * 19 July 2020: [**Seattle** protestors rise up against federal involvement](https://en.wikipedia.org/wiki/George_Floyd_protests_in_Seattle)
 * 13 July 2020: [Washington **Redskins** announce retirement of name and logo](https://www.washingtonfootball.com/news/washington-redskins-retiring-name-logo-following-review)
+* 4 July 2020: Trump [threatens protesters](https://www.whitehouse.gov/briefings-statements/remarks-president-trump-south-dakotas-2020-mount-rushmore-fireworks-celebration-keystone-south-dakota/) from the Black Hills for fourth of July
 * 3 July 2020: [15-26M Americans have protested in now the **largest protest** in US history](https://en.wikipedia.org/wiki/George_Floyd_protests)
 * 1 July 2020: [Trump deploys **federal forces** to several U.S. cities](https://en.wikipedia.org/wiki/2020_deployment_of_federal_forces_in_the_United_States)
 
